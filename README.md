@@ -1,1 +1,0 @@
-# hostelnosara.github.io
